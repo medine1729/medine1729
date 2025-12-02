@@ -1,6 +1,6 @@
 # Hi I'm Medine
 # 💫 About Me:
-🔭 I’m currently working on trendAI<br><br>👨‍💻 All of my projects are available at portfolio.com<br><br>📝 I regularly write articles on https://medium.com/@medinekaynak<br><br>📫 How to reach me medinekaynak2906@gmail.com<br><br>📄 
+🔭 I’m currently working on trendAI<br><br>👨‍💻 All of my projects are available at portfolio.com<br><br>📝 I regularly write articles on https://medium.com/@medinekaynak<br><br>📫 How to reach me medinekaynak2906@gmail.com<br><br>
 
 
 ## 🌐 Socials:
